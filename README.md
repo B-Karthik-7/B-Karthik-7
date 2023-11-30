@@ -1,4 +1,4 @@
-<img src="https://github.com/B-Karthik-7/B-Karthik-7/assets/150277049/b4504d2d-6bad-4f72-ad75-902b0f5a0027"/>
+![Header](https://github.com/B-Karthik-7/B-Karthik-7/assets/150277049/f10f384e-e15f-402f-b610-32d4c143246a)
 
 # 💫 About Me:
 
